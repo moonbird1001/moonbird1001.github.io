@@ -14,17 +14,17 @@ pin: true
 
 ## 1. 베이비댄스젤 Babydance Gel 임신준비 베이비댄스 10개입 젤온리, 젤 40g 어플리케이터 미포함
 
-[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fc2c/b26aa4af77d3b97c18b583e55647d32f72252f5d864640ca0100459d15ac.jpg)](https://da.gd/lG0xVF)
+[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fc2c/b26aa4af77d3b97c18b583e55647d32f72252f5d864640ca0100459d15ac.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베이비댄스젤 Babydance Gel 임신준비 베이비댄스 10개입 젤온리, 젤 40g 어플리케이터 미포함 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/lG0xVF) ❤️ 
+❤️ [**베이비댄스젤 Babydance Gel 임신준비 베이비댄스 10개입 젤온리, 젤 40g 어플리케이터 미포함 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**36,400원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**2개** [**[리뷰 보러가기 클릭]**](https://da.gd/lG0xVF) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**2개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/lG0xVF)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -33,17 +33,17 @@ pin: true
 
 ## 2. 퍼틸에이드포우먼 퍼틸CM 여성용 임신보조영양제 미국정품 산부인과추천
 
-[![babydance TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/378d/571a3ef3419e8bb5d57a50e3fedfdaca145f1e89085cfa25e8a8f2cfaf00.jpg)](https://da.gd/WQ3xw)
+[![babydance TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/378d/571a3ef3419e8bb5d57a50e3fedfdaca145f1e89085cfa25e8a8f2cfaf00.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**퍼틸에이드포우먼 퍼틸CM 여성용 임신보조영양제 미국정품 산부인과추천 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/WQ3xw) ❤️ 
+❤️ [**퍼틸에이드포우먼 퍼틸CM 여성용 임신보조영양제 미국정품 산부인과추천 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**49,060원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**5개** [**[리뷰 보러가기 클릭]**](https://da.gd/WQ3xw) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**5개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/WQ3xw)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -52,17 +52,17 @@ pin: true
 
 ## 3. 베이비댄스 임신준비 베이비댄스젤 40g 어플리케이터 10개입 / Fairhaven Health BabyDance Lubricant, 젤 40g
 
-[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fc2c/b26aa4af77d3b97c18b583e55647d32f72252f5d864640ca0100459d15ac.jpg)](https://da.gd/46EE)
+[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fc2c/b26aa4af77d3b97c18b583e55647d32f72252f5d864640ca0100459d15ac.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베이비댄스 임신준비 베이비댄스젤 40g 어플리케이터 10개입 / Fairhaven Health BabyDance Lubricant, 젤 40g <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/46EE) ❤️ 
+❤️ [**베이비댄스 임신준비 베이비댄스젤 40g 어플리케이터 10개입 / Fairhaven Health BabyDance Lubricant, 젤 40g <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**36,400원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/46EE) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/46EE)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -71,17 +71,17 @@ pin: true
 
 ## 4. 베이비댄스 임신준비 베이비댄스젤 40g 어플리케이터 10개입 / Fairhaven Health BabyDance Lubricant
 
-[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fc2c/b26aa4af77d3b97c18b583e55647d32f72252f5d864640ca0100459d15ac.jpg)](https://da.gd/UtOPW)
+[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fc2c/b26aa4af77d3b97c18b583e55647d32f72252f5d864640ca0100459d15ac.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베이비댄스 임신준비 베이비댄스젤 40g 어플리케이터 10개입 / Fairhaven Health BabyDance Lubricant <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/UtOPW) ❤️ 
+❤️ [**베이비댄스 임신준비 베이비댄스젤 40g 어플리케이터 10개입 / Fairhaven Health BabyDance Lubricant <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**38,900원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/UtOPW) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/UtOPW)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -90,17 +90,17 @@ pin: true
 
 ## 5. BabyDance Fertility Lubricant - Sperm-Friendly Safe Lube for Couples Trying to Get Pregnant - No Parabens Lubricate Without Harming Sperm or Eggs 40 G, 1개
 
-[![babydance TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6e53/8e74aeb17fe99dc59bb50ee6c5525ff42e6fc0ab356a16852d004b2954bd.jpg)](https://da.gd/p0etg)
+[![babydance TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6e53/8e74aeb17fe99dc59bb50ee6c5525ff42e6fc0ab356a16852d004b2954bd.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**BabyDance Fertility Lubricant - Sperm-Friendly Safe Lube for Couples Trying to Get Pregnant - No Parabens Lubricate Without Harming Sperm or Eggs 40 G, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/p0etg) ❤️ 
+❤️ [**BabyDance Fertility Lubricant - Sperm-Friendly Safe Lube for Couples Trying to Get Pregnant - No Parabens Lubricate Without Harming Sperm or Eggs 40 G, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**36,700원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/p0etg) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/p0etg)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -109,17 +109,17 @@ pin: true
 
 ## 6. 존슨즈 베이비 파우더 오리지날향, 200g, 1개
 
-[![babydance TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7f16/1be32950045c669254eb490738890e2ae5250038471fdb1b92e25b1a90b4.jpg)](https://da.gd/RCyHQF)
+[![babydance TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7f16/1be32950045c669254eb490738890e2ae5250038471fdb1b92e25b1a90b4.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**존슨즈 베이비 파우더 오리지날향, 200g, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/RCyHQF) ❤️ 
+❤️ [**존슨즈 베이비 파우더 오리지날향, 200g, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~8,900~~**  
 - **할인율:** **9%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**8,020원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**10062개** [**[리뷰 보러가기 클릭]**](https://da.gd/RCyHQF) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**10062개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/RCyHQF)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -128,17 +128,17 @@ pin: true
 
 ## 7. 페어해븐 헬스 Fairhaven Health BabyDance 임신 윤활제 일회용 튜브 및 애플리케이터 6개 각 3g(0.1oz), 1개, 1.5L
 
-[![babydance TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d1cc/d82649a30c719ae6a76fc6ed68c11b0b056533795b8dea15c9bb1f88aa15.jpg)](https://da.gd/ptP0Ce)
+[![babydance TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d1cc/d82649a30c719ae6a76fc6ed68c11b0b056533795b8dea15c9bb1f88aa15.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**페어해븐 헬스 Fairhaven Health BabyDance 임신 윤활제 일회용 튜브 및 애플리케이터 6개 각 3g(0.1oz), 1개, 1.5L <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/ptP0Ce) ❤️ 
+❤️ [**페어해븐 헬스 Fairhaven Health BabyDance 임신 윤활제 일회용 튜브 및 애플리케이터 6개 각 3g(0.1oz), 1개, 1.5L <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**46,000원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/ptP0Ce) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/ptP0Ce)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -147,17 +147,17 @@ pin: true
 
 ## 8. BabyDance 불임 윤활제 - 임신을 원하는 커플을 위한 정자 친화적인 안전한 윤활제 - 정자나 난자에 해를 끼치지 않는 무파라벤 윤활제 40 G
 
-[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4e60/1820d23bea69b2fc407acbd4c7ece5b7756d2d6283997546af7e552b9d63.jpg)](https://da.gd/621Gjo)
+[![babydance TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4e60/1820d23bea69b2fc407acbd4c7ece5b7756d2d6283997546af7e552b9d63.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**BabyDance 불임 윤활제 - 임신을 원하는 커플을 위한 정자 친화적인 안전한 윤활제 - 정자나 난자에 해를 끼치지 않는 무파라벤 윤활제 40 G <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/621Gjo) ❤️ 
+❤️ [**BabyDance 불임 윤활제 - 임신을 원하는 커플을 위한 정자 친화적인 안전한 윤활제 - 정자나 난자에 해를 끼치지 않는 무파라벤 윤활제 40 G <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**45,500원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/621Gjo) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/621Gjo)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -166,17 +166,17 @@ pin: true
 
 ## 9. 피셔프라이스 피아노 아기 체육관, 핑크
 
-[![babydance TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/10/30/3000297199/b46beea1-2f45-4d01-a871-d18ff9e17665.jpg)](https://da.gd/b9k5j)
+[![babydance TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/10/30/3000297199/b46beea1-2f45-4d01-a871-d18ff9e17665.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**피셔프라이스 피아노 아기 체육관, 핑크 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/b9k5j) ❤️ 
+❤️ [**피셔프라이스 피아노 아기 체육관, 핑크 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**41,040원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**10393개** [**[리뷰 보러가기 클릭]**](https://da.gd/b9k5j) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**10393개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/b9k5j)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -185,23 +185,23 @@ pin: true
 
 ## 10. BabyDance Fertility 윤활제-정자 친화적이고 임신을 시도하는 커플을 위한 안전한 윤활제 - 정자나 난자를 해치지 않고 윤활제를 바르는 파라벤 없음
 
-[![babydance TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d644/4cc42e9ee4f7cf586e40b89b13dae7565f9f0a8579d9c9148f3e63fd53e2.jpg)](https://da.gd/sNCBbl)
+[![babydance TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d644/4cc42e9ee4f7cf586e40b89b13dae7565f9f0a8579d9c9148f3e63fd53e2.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**BabyDance Fertility 윤활제-정자 친화적이고 임신을 시도하는 커플을 위한 안전한 윤활제 - 정자나 난자를 해치지 않고 윤활제를 바르는 파라벤 없음 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/sNCBbl) ❤️ 
+❤️ [**BabyDance Fertility 윤활제-정자 친화적이고 임신을 시도하는 커플을 위한 안전한 윤활제 - 정자나 난자를 해치지 않고 윤활제를 바르는 파라벤 없음 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**52,700원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/sNCBbl) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/sNCBbl)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 <br><br><br>[💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받을 수 있습니다](https://link.coupang.com/a/bcpT2c)<br><br>
 ---
 
-# 베이비댄스의 장점: 아동 발달을 최적화하기 위한 움직임과 리듬의 조화
+## 베이비댄스의 장점: 아동 발달을 최적화하기 위한 움직임과 리듬의 조화
 
 ## 소개
 

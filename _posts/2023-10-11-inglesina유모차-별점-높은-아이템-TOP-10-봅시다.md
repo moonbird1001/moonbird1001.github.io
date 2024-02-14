@@ -14,17 +14,17 @@ pin: true
 
 ## 1. 잉글레시나 쿼드 디럭스 유모차, 오션 블루
 
-[![inglesina유모차 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2018/03/27/12/3/49c6fc9c-ce0f-4358-a0c4-6b9b6c5810e1.jpg)](https://da.gd/SGo0U)
+[![inglesina유모차 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2018/03/27/12/3/49c6fc9c-ce0f-4358-a0c4-6b9b6c5810e1.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**잉글레시나 쿼드 디럭스 유모차, 오션 블루 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/SGo0U) ❤️ 
+❤️ [**잉글레시나 쿼드 디럭스 유모차, 오션 블루 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**743,250원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**4개** [**[리뷰 보러가기 클릭]**](https://da.gd/SGo0U) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**4개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/SGo0U)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -33,17 +33,17 @@ pin: true
 
 ## 2. Inglesina Quid 유모차 - 13파운드의 가벼운 여행용 초소형 접이식 P3241, Accessory: Rain Cover
 
-[![inglesina유모차 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4267/78142c0fcdf89f32142726e0b9932ac46bad68564557886e0e46f6c9fd57.jpg)](https://da.gd/HeoG)
+[![inglesina유모차 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4267/78142c0fcdf89f32142726e0b9932ac46bad68564557886e0e46f6c9fd57.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**Inglesina Quid 유모차 - 13파운드의 가벼운 여행용 초소형 접이식 P3241, Accessory: Rain Cover <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/HeoG) ❤️ 
+❤️ [**Inglesina Quid 유모차 - 13파운드의 가벼운 여행용 초소형 접이식 P3241, Accessory: Rain Cover <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**118,300원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/HeoG) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/HeoG)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -52,17 +52,17 @@ pin: true
 
 ## 3. 잉글레시나 퀴드 아기 유모차, 오닉스 블랙
 
-[![inglesina유모차 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a5de/c8201d9a4e6552feccd8a130e7661a18954bd818556a3a54641663a1cc92.jpg)](https://da.gd/4eQCZ)
+[![inglesina유모차 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a5de/c8201d9a4e6552feccd8a130e7661a18954bd818556a3a54641663a1cc92.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**잉글레시나 퀴드 아기 유모차, 오닉스 블랙 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/4eQCZ) ❤️ 
+❤️ [**잉글레시나 퀴드 아기 유모차, 오닉스 블랙 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**523,100원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/4eQCZ) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/4eQCZ)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -71,17 +71,17 @@ pin: true
 
 ## 4. 리안 그램플러스 기내반입형 휴대용 유모차, 웜 그레이
 
-[![inglesina유모차 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/24/15/3/a239d995-7a4b-44df-842a-9b89b8711e82.jpg)](https://da.gd/2MJeH)
+[![inglesina유모차 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/24/15/3/a239d995-7a4b-44df-842a-9b89b8711e82.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**리안 그램플러스 기내반입형 휴대용 유모차, 웜 그레이 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/2MJeH) ❤️ 
+❤️ [**리안 그램플러스 기내반입형 휴대용 유모차, 웜 그레이 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~273,600~~**  
 - **할인율:** **1%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**270,000원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**79개** [**[리뷰 보러가기 클릭]**](https://da.gd/2MJeH) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**79개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/2MJeH)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -90,17 +90,17 @@ pin: true
 
 ## 5. 맘네스트 잉글레시나 트릴로지 전용 유모차 4계절커버, 블랙멜란지, 1개
 
-[![inglesina유모차 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/08/02/9/4/dba81a7f-49d1-4556-a598-530fe27fe3a5.jpg)](https://da.gd/MWGJDt)
+[![inglesina유모차 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/08/02/9/4/dba81a7f-49d1-4556-a598-530fe27fe3a5.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**맘네스트 잉글레시나 트릴로지 전용 유모차 4계절커버, 블랙멜란지, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/MWGJDt) ❤️ 
+❤️ [**맘네스트 잉글레시나 트릴로지 전용 유모차 4계절커버, 블랙멜란지, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~45,900~~**  
 - **할인율:** **3%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**44,400원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**54개** [**[리뷰 보러가기 클릭]**](https://da.gd/MWGJDt) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**54개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/MWGJDt)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -109,17 +109,17 @@ pin: true
 
 ## 6. [잉글레시나] 프리미엄 시력보호 방풍커버 트윈스케치/쌍둥이 유모차용, 블랙, 1개
 
-[![inglesina유모차 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/be0d/74ba78547cf983c2e9f6b7c2c0c192db83a10cdd39d6528beabe3e81d7fe.png)](https://da.gd/lfDK)
+[![inglesina유모차 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/be0d/74ba78547cf983c2e9f6b7c2c0c192db83a10cdd39d6528beabe3e81d7fe.png)](https://is.gd/5SIYGF)
 
-❤️ [**[잉글레시나] 프리미엄 시력보호 방풍커버 트윈스케치/쌍둥이 유모차용, 블랙, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/lfDK) ❤️ 
+❤️ [**[잉글레시나] 프리미엄 시력보호 방풍커버 트윈스케치/쌍둥이 유모차용, 블랙, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**73,200원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/lfDK) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/lfDK)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -128,17 +128,17 @@ pin: true
 
 ## 7. 잉글레시나 트윈 스케치 쌍둥이 유모차 절충형, 마린 네이비
 
-[![inglesina유모차 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fe41/f53d4242f7994c605264a977c23bd69177aa6b04bc62a7b4a38e5a63660d.jpg)](https://da.gd/46VIn)
+[![inglesina유모차 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fe41/f53d4242f7994c605264a977c23bd69177aa6b04bc62a7b4a38e5a63660d.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**잉글레시나 트윈 스케치 쌍둥이 유모차 절충형, 마린 네이비 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/46VIn) ❤️ 
+❤️ [**잉글레시나 트윈 스케치 쌍둥이 유모차 절충형, 마린 네이비 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**766,440원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**33개** [**[리뷰 보러가기 클릭]**](https://da.gd/46VIn) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**33개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/46VIn)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -147,17 +147,17 @@ pin: true
 
 ## 8. 잉글레시나 블랙 쿼드 DX 유모차, 사하라
 
-[![inglesina유모차 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2015/11/19/3006173812/e0f20949-6a08-4d2c-aaa5-225d7810c349.jpg)](https://da.gd/sb9s)
+[![inglesina유모차 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2015/11/19/3006173812/e0f20949-6a08-4d2c-aaa5-225d7810c349.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**잉글레시나 블랙 쿼드 DX 유모차, 사하라 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/sb9s) ❤️ 
+❤️ [**잉글레시나 블랙 쿼드 DX 유모차, 사하라 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**866,600원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**1개** [**[리뷰 보러가기 클릭]**](https://da.gd/sb9s) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**1개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/sb9s)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -166,17 +166,17 @@ pin: true
 
 ## 9. 잉글레시나 트윈 스케치 쌍둥이 유모차 절충형, 스톤 그레이
 
-[![inglesina유모차 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8e13/20131f260e6b00d3f9ccd75accb7dda99c632d2aa3e4c8ec0917ab0206e8.jpg)](https://da.gd/SHP9)
+[![inglesina유모차 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8e13/20131f260e6b00d3f9ccd75accb7dda99c632d2aa3e4c8ec0917ab0206e8.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**잉글레시나 트윈 스케치 쌍둥이 유모차 절충형, 스톤 그레이 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/SHP9) ❤️ 
+❤️ [**잉글레시나 트윈 스케치 쌍둥이 유모차 절충형, 스톤 그레이 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**766,440원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**33개** [**[리뷰 보러가기 클릭]**](https://da.gd/SHP9) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**33개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/SHP9)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -185,17 +185,17 @@ pin: true
 
 ## 10. 잉글레시나 트릴로지 디럭스 프리미엄 유모차 2018
 
-[![inglesina유모차 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b286/c4d32e43d216fd5c748ca6636da2627ff18d20c47be75ac512e90f392979.jpg)](https://da.gd/zwSN)
+[![inglesina유모차 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b286/c4d32e43d216fd5c748ca6636da2627ff18d20c47be75ac512e90f392979.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**잉글레시나 트릴로지 디럭스 프리미엄 유모차 2018 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/zwSN) ❤️ 
+❤️ [**잉글레시나 트릴로지 디럭스 프리미엄 유모차 2018 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**172,500원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/zwSN) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/zwSN)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 <br><br><br>[💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받을 수 있습니다](https://link.coupang.com/a/bcpT2c)<br><br>
@@ -253,7 +253,7 @@ Inglesina 유모차는 다양한 색상과 스타일로 제공되므로 귀하�
 
 ---
 
-# **잉글리시나 유모차 구매 시 주의점**
+## **잉글리시나 유모차 구매 시 주의점**
 
 소중한 아기와 함께 산책을 다니는 데 유용한 유모차는 편리성과 안전성이 모두 중요합니다. 잉글리시나 유모차는 많은 부모들이 선호하는 유모차 브랜드 중 하나이며, 그만큼 신뢰할 수 있는 제품을 생산합니다. 하지만 유모차를 구입하기 전에 반드시 확인해야 할 몇 가지 사항이 있습니다.
 

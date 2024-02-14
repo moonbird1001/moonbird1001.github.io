@@ -14,17 +14,17 @@ pin: true
 
 ## 1. 중고품 하이패스 본체만 스미스패스
 
-[![smithpass TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf00/20106fd7c0b0451443520fcd3b96420a18e4008ee3c4181f75f7257a1adf.png)](https://da.gd/Jzk27)
+[![smithpass TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf00/20106fd7c0b0451443520fcd3b96420a18e4008ee3c4181f75f7257a1adf.png)](https://is.gd/5SIYGF)
 
-❤️ [**중고품 하이패스 본체만 스미스패스 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/Jzk27) ❤️ 
+❤️ [**중고품 하이패스 본체만 스미스패스 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**No data**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/Jzk27) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/Jzk27)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -33,17 +33,17 @@ pin: true
 
 ## 2. 하이패스 전용 케이블 엠피온 정품 set250 T45 스미스패스 x730s ap500, 시거잭
 
-[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a03c/ac07cbf37ad133efb03d0d5359f7499ef013379a7208f91336bb0d08d097.jpeg)](https://da.gd/kcv0VL)
+[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a03c/ac07cbf37ad133efb03d0d5359f7499ef013379a7208f91336bb0d08d097.jpeg)](https://is.gd/5SIYGF)
 
-❤️ [**하이패스 전용 케이블 엠피온 정품 set250 T45 스미스패스 x730s ap500, 시거잭 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/kcv0VL) ❤️ 
+❤️ [**하이패스 전용 케이블 엠피온 정품 set250 T45 스미스패스 x730s ap500, 시거잭 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**3,000원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/kcv0VL) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/kcv0VL)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -52,17 +52,17 @@ pin: true
 
 ## 3. 하이패스 전용 케이블 엠피온 정품 set250 T45 스미스패스 x730s ap500, 매립케이블
 
-[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a03c/ac07cbf37ad133efb03d0d5359f7499ef013379a7208f91336bb0d08d097.jpeg)](https://da.gd/HaDEz)
+[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a03c/ac07cbf37ad133efb03d0d5359f7499ef013379a7208f91336bb0d08d097.jpeg)](https://is.gd/5SIYGF)
 
-❤️ [**하이패스 전용 케이블 엠피온 정품 set250 T45 스미스패스 x730s ap500, 매립케이블 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/HaDEz) ❤️ 
+❤️ [**하이패스 전용 케이블 엠피온 정품 set250 T45 스미스패스 x730s ap500, 매립케이블 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**3,000원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/HaDEz) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/HaDEz)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -71,17 +71,17 @@ pin: true
 
 ## 4. 2 대시보드흡착판 차량용 토드 하이패스 스미스패스 268 테이프 거치대 엠피온 태양열 행복
 
-[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7814/2ea1105376e6cac3b4366973e92d2d23be7c1f330e0a9d8dc0b1526c0793.jpg)](https://da.gd/e21r)
+[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7814/2ea1105376e6cac3b4366973e92d2d23be7c1f330e0a9d8dc0b1526c0793.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**2 대시보드흡착판 차량용 토드 하이패스 스미스패스 268 테이프 거치대 엠피온 태양열 행복 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/e21r) ❤️ 
+❤️ [**2 대시보드흡착판 차량용 토드 하이패스 스미스패스 268 테이프 거치대 엠피온 태양열 행복 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**5,890원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/e21r) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/e21r)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -90,17 +90,17 @@ pin: true
 
 ## 5. D22 토드 하이패스 테이프 0268, 쿠팡 본상품선택, 쿠팡 본상품선택, 1개
 
-[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7814/2ea1105376e6cac3b4366973e92d2d23be7c1f330e0a9d8dc0b1526c0793.jpg)](https://da.gd/BW5jF)
+[![smithpass TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7814/2ea1105376e6cac3b4366973e92d2d23be7c1f330e0a9d8dc0b1526c0793.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**D22 토드 하이패스 테이프 0268, 쿠팡 본상품선택, 쿠팡 본상품선택, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/BW5jF) ❤️ 
+❤️ [**D22 토드 하이패스 테이프 0268, 쿠팡 본상품선택, 쿠팡 본상품선택, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~8,460~~**  
 - **할인율:** **9%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**7,620원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/BW5jF) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/BW5jF)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -109,17 +109,17 @@ pin: true
 
 ## 6. TL-750 하이패스 단말기 전용 태양광 보조 충전 거치대 S-740
 
-[![smithpass TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/03/17/15/2/a96c9ff1-c63c-4d85-bab4-bc714d0f3bd8.jpg)](https://da.gd/AQFq0)
+[![smithpass TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/03/17/15/2/a96c9ff1-c63c-4d85-bab4-bc714d0f3bd8.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**TL-750 하이패스 단말기 전용 태양광 보조 충전 거치대 S-740 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/AQFq0) ❤️ 
+❤️ [**TL-750 하이패스 단말기 전용 태양광 보조 충전 거치대 S-740 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**18,440원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**123개** [**[리뷰 보러가기 클릭]**](https://da.gd/AQFq0) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**123개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/AQFq0)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -128,17 +128,17 @@ pin: true
 
 ## 7. 스미스 티메이커 페퍼민트, 1.5g, 15개입, 2개
 
-[![smithpass TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/29e75ea8-39ea-4589-a438-ff9438b5fce03999210359968324551.png)](https://da.gd/vcndN)
+[![smithpass TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/29e75ea8-39ea-4589-a438-ff9438b5fce03999210359968324551.png)](https://is.gd/5SIYGF)
 
-❤️ [**스미스 티메이커 페퍼민트, 1.5g, 15개입, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/vcndN) ❤️ 
+❤️ [**스미스 티메이커 페퍼민트, 1.5g, 15개입, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~47,480~~**  
 - **할인율:** **쿠폰할인가**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**45,020원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**138개** [**[리뷰 보러가기 클릭]**](https://da.gd/vcndN) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**138개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/vcndN)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -147,17 +147,17 @@ pin: true
 
 ## 8. 스미스 티메이커 페퍼민트, 1.5g, 15개입, 1개
 
-[![smithpass TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3723775013748162-183c9080-31a0-43f4-9f52-fd633ac8ab8a.jpg)](https://da.gd/OeBpP)
+[![smithpass TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3723775013748162-183c9080-31a0-43f4-9f52-fd633ac8ab8a.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**스미스 티메이커 페퍼민트, 1.5g, 15개입, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/OeBpP) ❤️ 
+❤️ [**스미스 티메이커 페퍼민트, 1.5g, 15개입, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~26,500~~**  
 - **할인율:** **3%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**25,520원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**138개** [**[리뷰 보러가기 클릭]**](https://da.gd/OeBpP) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**138개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/OeBpP)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -166,17 +166,17 @@ pin: true
 
 ## 9. 스미스 티메이커 빅 히비스커스, 2.7g, 15개입, 1박스
 
-[![smithpass TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/16337714979384-f7c303a5-6df9-4344-bd7d-25902abb859c.jpg)](https://da.gd/bBE8n)
+[![smithpass TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/16337714979384-f7c303a5-6df9-4344-bd7d-25902abb859c.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**스미스 티메이커 빅 히비스커스, 2.7g, 15개입, 1박스 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/bBE8n) ❤️ 
+❤️ [**스미스 티메이커 빅 히비스커스, 2.7g, 15개입, 1박스 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~26,500~~**  
 - **할인율:** **쿠폰할인가**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**23,000원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**49개** [**[리뷰 보러가기 클릭]**](https://da.gd/bBE8n) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**49개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/bBE8n)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -185,17 +185,17 @@ pin: true
 
 ## 10. 스미스웨이트 센티널에디션 타로카드 한글설명서 동봉, 혼합색상
 
-[![smithpass TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/296d/d290d3fc8f9af5116fb5e2ba7c2e72160890827e4ba3602a5f8a4881646f.png)](https://da.gd/MNOYc)
+[![smithpass TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/296d/d290d3fc8f9af5116fb5e2ba7c2e72160890827e4ba3602a5f8a4881646f.png)](https://is.gd/5SIYGF)
 
-❤️ [**스미스웨이트 센티널에디션 타로카드 한글설명서 동봉, 혼합색상 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/MNOYc) ❤️ 
+❤️ [**스미스웨이트 센티널에디션 타로카드 한글설명서 동봉, 혼합색상 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~17,000~~**  
 - **할인율:** **41%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**9,900원**  
 - **평점:** **4.5**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**68개** [**[리뷰 보러가기 클릭]**](https://da.gd/MNOYc) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**68개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/MNOYc)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 <br><br><br>[💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받을 수 있습니다](https://link.coupang.com/a/bcpT2c)<br><br>

@@ -14,17 +14,17 @@ pin: true
 
 ## 1. 베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 2개
 
-[![vertblanc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/b923753d-4782-4598-bbbf-1bcde5b515de4547003310257559361.png)](https://da.gd/xsSuB)
+[![vertblanc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/b923753d-4782-4598-bbbf-1bcde5b515de4547003310257559361.png)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/xsSuB) ❤️ 
+❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~25,140~~**  
 - **할인율:** **5%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**23,800원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**1236개** [**[리뷰 보러가기 클릭]**](https://da.gd/xsSuB) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**1236개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/xsSuB)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -33,17 +33,17 @@ pin: true
 
 ## 2. 베르블랑 유아 섬유 유연제 그린플로럴향, 1000ml, 1개
 
-[![vertblanc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/279431888416746-66a94968-4bf4-46ba-8dcd-b2e3bf283529.jpg)](https://da.gd/saW03)
+[![vertblanc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/279431888416746-66a94968-4bf4-46ba-8dcd-b2e3bf283529.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아 섬유 유연제 그린플로럴향, 1000ml, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/saW03) ❤️ 
+❤️ [**베르블랑 유아 섬유 유연제 그린플로럴향, 1000ml, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~13,010~~**  
 - **할인율:** **18%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**10,630원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**298개** [**[리뷰 보러가기 클릭]**](https://da.gd/saW03) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**298개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/saW03)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -52,17 +52,17 @@ pin: true
 
 ## 3. 베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 1개
 
-[![vertblanc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d2a4/dd7094fc2cc20a41b176b176506e1ebaae58f6cbd64182f2c30a2edf611d.jpg)](https://da.gd/TeLUkX)
+[![vertblanc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d2a4/dd7094fc2cc20a41b176b176506e1ebaae58f6cbd64182f2c30a2edf611d.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/TeLUkX) ❤️ 
+❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~26,000~~**  
 - **할인율:** **50%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**12,900원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**1236개** [**[리뷰 보러가기 클릭]**](https://da.gd/TeLUkX) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**1236개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/TeLUkX)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -71,17 +71,17 @@ pin: true
 
 ## 4. 베르블랑 유아용 세탁 세제 화이트향 1L, 1개
 
-[![vertblanc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1466616625008870-1c9211e4-1035-4bfb-b32a-e4b0306b1d7c.crdownload)](https://da.gd/gPk08)
+[![vertblanc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1466616625008870-1c9211e4-1035-4bfb-b32a-e4b0306b1d7c.crdownload)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아용 세탁 세제 화이트향 1L, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/gPk08) ❤️ 
+❤️ [**베르블랑 유아용 세탁 세제 화이트향 1L, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~14,100~~**  
 - **할인율:** **17%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**11,570원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**926개** [**[리뷰 보러가기 클릭]**](https://da.gd/gPk08) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**926개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/gPk08)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -90,17 +90,17 @@ pin: true
 
 ## 5. 베르블랑 유아 섬유 유연제 그린플로럴향, 1000ml, 3개
 
-[![vertblanc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5009bcfd-d4f8-45dd-a9fb-8f9403c4dfd26778024236066310008.png)](https://da.gd/QrHE3K)
+[![vertblanc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5009bcfd-d4f8-45dd-a9fb-8f9403c4dfd26778024236066310008.png)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아 섬유 유연제 그린플로럴향, 1000ml, 3개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/QrHE3K) ❤️ 
+❤️ [**베르블랑 유아 섬유 유연제 그린플로럴향, 1000ml, 3개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~35,920~~**  
 - **할인율:** **11%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**31,890원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**298개** [**[리뷰 보러가기 클릭]**](https://da.gd/QrHE3K) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**298개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/QrHE3K)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -109,17 +109,17 @@ pin: true
 
 ## 6. 베르블랑 섬유탈취제 시그니처 화이트향 150mL VB-RW1, 1개
 
-[![vertblanc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0b41/c97c5c5e0e2041bd289c700ebc181650a6aa38fc3ea760229ac6a9230c53.jpg)](https://da.gd/E6IRNM)
+[![vertblanc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0b41/c97c5c5e0e2041bd289c700ebc181650a6aa38fc3ea760229ac6a9230c53.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 섬유탈취제 시그니처 화이트향 150mL VB-RW1, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/E6IRNM) ❤️ 
+❤️ [**베르블랑 섬유탈취제 시그니처 화이트향 150mL VB-RW1, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**9,900원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**1개** [**[리뷰 보러가기 클릭]**](https://da.gd/E6IRNM) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**1개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/E6IRNM)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -128,17 +128,17 @@ pin: true
 
 ## 7. 베르블랑 유아용 섬유유연제 바닐라파우더향, 1L, 2개
 
-[![vertblanc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/a7a86ca3-dc3f-49d0-a5c2-fefea02b65cc654527015064801849.png)](https://da.gd/bobR)
+[![vertblanc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/a7a86ca3-dc3f-49d0-a5c2-fefea02b65cc654527015064801849.png)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아용 섬유유연제 바닐라파우더향, 1L, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/bobR) ❤️ 
+❤️ [**베르블랑 유아용 섬유유연제 바닐라파우더향, 1L, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~31,800~~**  
 - **할인율:** **28%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**22,720원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**181개** [**[리뷰 보러가기 클릭]**](https://da.gd/bobR) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**181개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/bobR)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -147,17 +147,17 @@ pin: true
 
 ## 8. 베르블랑 아기 섬유유연제 머스크향, 1000ml, 1개
 
-[![vertblanc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/283211497135954-61380830-a22f-4dd4-b5f8-0a8ff92a3501.jpg)](https://da.gd/BU19E)
+[![vertblanc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/283211497135954-61380830-a22f-4dd4-b5f8-0a8ff92a3501.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 아기 섬유유연제 머스크향, 1000ml, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/BU19E) ❤️ 
+❤️ [**베르블랑 아기 섬유유연제 머스크향, 1000ml, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~11,430~~**  
 - **할인율:** **4%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**10,940원**  
 - **평점:** **5.0**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**185개** [**[리뷰 보러가기 클릭]**](https://da.gd/BU19E) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**185개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/BU19E)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -166,17 +166,17 @@ pin: true
 
 ## 9. 베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 1개
 
-[![vertblanc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1530170353025848-55863fe8-3018-4260-aa64-a6b7d72b77ca.jpg)](https://da.gd/r1M0m)
+[![vertblanc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1530170353025848-55863fe8-3018-4260-aa64-a6b7d72b77ca.jpg)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/r1M0m) ❤️ 
+❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 1개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~-~~**  
 - **할인율:** **0%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**14,310원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/r1M0m) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/r1M0m)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 
@@ -185,17 +185,17 @@ pin: true
 
 ## 10. 베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 2개
 
-[![vertblanc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/b923753d-4782-4598-bbbf-1bcde5b515de4547003310257559361.png)](https://da.gd/LgifsG)
+[![vertblanc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/b923753d-4782-4598-bbbf-1bcde5b515de4547003310257559361.png)](https://is.gd/5SIYGF)
 
-❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://da.gd/LgifsG) ❤️ 
+❤️ [**베르블랑 유아용 섬유유연제 시그니처 화이트향, 1L, 2개 <font color=red> 지금 바로 클릭!! </font>**](https://is.gd/5SIYGF) ❤️ 
 
 - **할인전가격:** **~~25,140~~**  
 - **할인율:** **5%**  
 - <span style='color:blue'>**즉시할인가:** <span style='color:red'>**23,800원**  
 - **평점:** **No data**  
-- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://da.gd/LgifsG) 
+- <span style='color:blue'>**리뷰:** <span style='color:red'>**0개** [**[리뷰 보러가기 클릭]**](https://is.gd/5SIYGF) 
 
-[![](/show.png)](https://da.gd/LgifsG)
+[![](/show.png)](https://is.gd/5SIYGF)
 
 <br>
 <br><br><br>[💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받을 수 있습니다](https://link.coupang.com/a/bcpT2c)<br><br>
@@ -236,7 +236,7 @@ Vertblanc는 척추 건강을 증진하고 통증을 완화하는 데 도움이 
 
 ---
 
-# Vertblanc 구매 시 주의점
+## Vertblanc 구매 시 주의점
 
 ## 1. 제품 리뷰와 평판 확인하기
 
